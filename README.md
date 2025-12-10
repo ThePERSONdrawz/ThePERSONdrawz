@@ -2,3 +2,7 @@
 ⏾⋆.˚╰┈➤ ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧ ᴀʟʟᴏᴡᴇᴅ! ⋆.˚🪻༘⋆ = C+H┊Ksser┊Ships┊Asking to match┊Int┊
 ˚₊‧꒰ა ☆ ໒꒱ ‧₊˚
 ⏾⋆.˚╰┈➤  ( •᷄‎ࡇ•᷅)? ɴᴏᴛ ᴀʟʟᴏᴡᴇᴅ! ⊹ ࣪ ˖ ִ ࣪𖤐 = Pro ships┊Problematic┊Immediate friend req's┊
+
+
+
+![image](https://github.com/user-attachments/assets/7f47dfba-b132-43d3-ad10-3be945022db2)
