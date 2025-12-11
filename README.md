@@ -12,7 +12,8 @@
 
 <img width="952" height="1080" alt="image" src="https://github.com/user-attachments/assets/62add1a3-a6e0-4482-b66f-74ad905d7dbc" />
 
-꥟⋆˚࿔ɴᴏᴛ ᴍʏ ᴀʀᴛ.ᐟ.ᐟ꥟ ⊹ ࣪ 
+꥟⋆˚࿔ɴᴏᴛ ᴍʏ ᴀʀᴛ.ᐟ.ᐟ꥟ ⊹ ࣪ ![image](https://github.com/user-attachments/assets/ffe395b0-04f4-4e93-bcf7-3b887f8e3ce4)
+
 
 
 
