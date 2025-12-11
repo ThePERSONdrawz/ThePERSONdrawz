@@ -10,7 +10,8 @@
 ⋆♱⃓⁀➴ ᴅᴏ ɴᴏᴛ ғʀɪᴇɴᴅ ʀᴇǫᴜᴇsᴛ ᴜɴʟᴇss ɪ ᴅᴏ / ʏᴏᴜ ᴀsᴋ ᴍᴇ ᴛᴏ ◛⑅·˚ ༘ ♡                                                
 ₊ ⊹ ₊ᴅɴɪ sᴘᴀᴡɴɪsᴛs. .𖥔 ݁ ˖‪ ⋆♱࣪ ![image](https://github.com/user-attachments/assets/057a0615-8bad-4892-8bde-c6e5e6240976)
 
-<img width="1080" height="1080" alt="image" src="https://github.com/user-attachments/assets/bdcf0696-5e03-4d7a-81bc-e55c76a0e5e9" />
+<img width="1080" height="1080" alt="image" src="https://github.com/user-attachments/assets/0ad45a32-31f8-4c45-aa2b-187b71b24a58" />
+
 
 
 
