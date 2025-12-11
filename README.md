@@ -14,9 +14,5 @@
 
 <img width="952" height="1080" alt="image" src="https://github.com/user-attachments/assets/62add1a3-a6e0-4482-b66f-74ad905d7dbc" />
 
-
-
-
-
-
+☾ ᴏʜ ᴀɴᴅ ʟᴇᴀғʏ ⊹ ࣪ ˖٠ ࣪ https://media.tenor.com/5zg96a7IpFgAAAAi/bfdi-leafy-leafy-bfdi.gif<img width="250" height="442" alt="image" src="https://github.com/user-attachments/assets/d1212e9f-1a99-4818-acc6-a2a6a7542578" />
 
