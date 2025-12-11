@@ -8,4 +8,5 @@
 ![image](https://github.com/user-attachments/assets/df863fc1-86f8-4fc2-9d18-c2244b46e34b) ![image](https://github.com/user-attachments/assets/df863fc1-86f8-4fc2-9d18-c2244b46e34b) ![image](https://github.com/user-attachments/assets/df863fc1-86f8-4fc2-9d18-c2244b46e34b) ![image](https://github.com/user-attachments/assets/df863fc1-86f8-4fc2-9d18-c2244b46e34b) ![image](https://github.com/user-attachments/assets/df863fc1-86f8-4fc2-9d18-c2244b46e34b) ![image](https://github.com/user-attachments/assets/df863fc1-86f8-4fc2-9d18-c2244b46e34b) 
 
 ⋆♱⃓⁀➴ ᴅᴏ ɴᴏᴛ ғʀɪᴇɴᴅ ʀᴇǫᴜᴇsᴛ ᴜɴʟᴇss ɪ ᴅᴏ / ʏᴏᴜ ᴀsᴋ ᴍᴇ ᴛᴏ ◛⑅·˚ ༘ ♡                                                
-₊ ⊹ ₊ᴅɴɪ sᴘᴀᴡɴɪsᴛs. .𖥔 ݁ ˖‪ ⋆♱࣪  https://media.tenor.com/lt5pF3Cgz9AAAAAi/small-cat.gif
+₊ ⊹ ₊ᴅɴɪ sᴘᴀᴡɴɪsᴛs. .𖥔 ݁ ˖‪ ⋆♱࣪ https://media.tenor.com/lt5pF3Cgz9AAAAAi/small-cat.gif<img width="48" height="48" alt="image" src="https://github.com/user-attachments/assets/cbfebe68-0e35-46ac-90ce-bb36fa8f6c8f" />
+
