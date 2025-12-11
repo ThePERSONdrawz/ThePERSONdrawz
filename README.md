@@ -14,5 +14,5 @@
 
 <img width="952" height="1080" alt="image" src="https://github.com/user-attachments/assets/62add1a3-a6e0-4482-b66f-74ad905d7dbc" />
 
-☾ ᴏʜ ᴀɴᴅ ʟᴇᴀғʏ ⊹ ࣪ ˖٠ ࣪ https://media.tenor.com/5zg96a7IpFgAAAAi/bfdi-leafy-leafy-bfdi.gif<img width="250" height="442" alt="image" src="https://github.com/user-attachments/assets/d1212e9f-1a99-4818-acc6-a2a6a7542578" />
-
+☾ ᴏʜ ᴀɴᴅ ʟᴇᴀғʏ ⊹ ࣪ ˖٠ ࣪
+![image](https://github.com/user-attachments/assets/a715ee58-646e-4d80-b790-76e0db70c54a)
