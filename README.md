@@ -13,7 +13,8 @@
 
 <img width="952" height="1080" alt="image" src="https://github.com/user-attachments/assets/62add1a3-a6e0-4482-b66f-74ad905d7dbc" />
 
-![image](https://github.com/user-attachments/assets/ffe395b0-04f4-4e93-bcf7-3b887f8e3ce4)
+꥟ °˖➴ᴀᴢᴜʀᴇᴛɪᴍᴇ ɪɴᴛ.ᐟ.ᐟ ☾⊹ ࣪ ˖  ![image](https://github.com/user-attachments/assets/ffe395b0-04f4-4e93-bcf7-3b887f8e3ce4)![image](https://github.com/user-attachments/assets/97099bf1-1d03-4740-976e-6ef4abe5ba55)
+
 
 
 
