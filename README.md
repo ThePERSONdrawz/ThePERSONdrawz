@@ -11,7 +11,7 @@
 ₊ ⊹ ₊ᴅɴɪ sᴘᴀᴡɴɪsᴛs. .𖥔 ݁ ˖‪ ⋆♱࣪ ![image](https://github.com/user-attachments/assets/057a0615-8bad-4892-8bde-c6e5e6240976)
 
 <img width="952" height="1080" alt="image" src="https://github.com/user-attachments/assets/62add1a3-a6e0-4482-b66f-74ad905d7dbc" />
-꥟⋆˚࿔ɴᴏᴛ ᴍʏ ᴀʀᴛ.ᐟ.ᐟ꥟ ⊹ ࣪ ˖ ![image](https://github.com/user-attachments/assets/057a0615-8bad-4892-8bde-c6e5e6240976)![image](https://github.com/user-attachments/assets/057a0615-8bad-4892-8bde-c6e5e6240976)
+꥟⋆˚࿔ɴᴏᴛ ᴍʏ ᴀʀᴛ.ᐟ.ᐟ꥟ ⊹ ࣪ ˖ ![image](https://github.com/user-attachments/assets/65e06f2d-7e85-4688-bb9a-b4be703c4bcb) ![image](https://github.com/user-attachments/assets/65e06f2d-7e85-4688-bb9a-b4be703c4bcb)
 
 
 
