@@ -1,8 +1,9 @@
 ## ⋆˙⟡ ʜɪ, ʀᴇᴀᴅ ʙᴇғᴏʀᴇ ɪɴᴛ.ᐟ ꥟.𖥔 ݁ ˖
 ⏾⋆.˚╰┈➤ ദ്ദി(˵ •̀ ᴗ - ˵ ) ✧ ᴀʟʟᴏᴡᴇᴅ! ⋆.˚🪻༘⋆ = C+H┊Ksser┊Ships┊Asking to match┊Int┊                                 
-⏾⋆.˚╰┈➤  ( •᷄‎ࡇ•᷅)? ɴᴏᴛ ᴀʟʟᴏᴡᴇᴅ! ⊹ ࣪ ˖ ִ ࣪𖤐 = Pro ships┊Problematic┊Immediate friend req's┊Copying┊
-
-
+⏾⋆.˚╰┈➤  ( •᷄‎ࡇ•᷅)? ɴᴏᴛ ᴀʟʟᴏᴡᴇᴅ! ⊹ ࣪ ˖ ִ ࣪𖤐 = Pro ships┊Problematic┊Immediate friend req's┊Copying┊Asking my age┊
+                          
+# IMPORTANT ⬅ ₊˚
+i have become way more personal about my life, and i'd like to keep everything online, ONLINE. You will be nothing more to me than just an online friend. Sorry if im wording it rude, but i wont let people take advantage of my kindness. It is final, i will not share what i dont want to share, and to pressure me will get you nowhere. ( ^ω^ )
 
 
 ![image](https://github.com/user-attachments/assets/df863fc1-86f8-4fc2-9d18-c2244b46e34b) ![image](https://github.com/user-attachments/assets/df863fc1-86f8-4fc2-9d18-c2244b46e34b) ![image](https://github.com/user-attachments/assets/df863fc1-86f8-4fc2-9d18-c2244b46e34b) ![image](https://github.com/user-attachments/assets/df863fc1-86f8-4fc2-9d18-c2244b46e34b) ![image](https://github.com/user-attachments/assets/df863fc1-86f8-4fc2-9d18-c2244b46e34b) ![image](https://github.com/user-attachments/assets/df863fc1-86f8-4fc2-9d18-c2244b46e34b) 
