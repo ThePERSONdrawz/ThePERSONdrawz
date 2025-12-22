@@ -17,3 +17,7 @@
 
 ☾ ᴏʜ ᴀɴᴅ ʟᴇᴀғʏ ⊹ ࣪ ˖٠ ࣪
 ![image](https://github.com/user-attachments/assets/a715ee58-646e-4d80-b790-76e0db70c54a)
+
+Fav CRXW Songs.⋆♱ = Blinked, but you hadn't ?┊I love the way it cries┊Scream until it bleeds┊Amnesia┊Ocean┊Ambiance.over? Emotion┊Ur ? means nothing to me.┊,,,...┊Unpledged alliance┊Te o arrate?┊Everything is a vivid hallucination┊ Volume: ■■■■■□□□ ↻ ◁ II ▷ ↺
+                                 ༶•┈┈୨♡୧┈┈•༶
+Other fav song artists.⋆♱ = Femtanyl┊FEM&M┊crxw┊weevildoing┊$i#dzy┊STOMACH BOOK┊Vertigoaway┊spellcasting┊milkypossum┊Goreshit┊The Scary Jokes┊Jack Stauber┊CG5┊bo en┊TV girl┊psiangel┊tyler┊Frenezy┊ ᡕᠵ᠊ᡃ່࡚ࠢ࠘ ⸝່ࠡࠣ᠊߯᠆ࠣ࠘ᡁࠣ࠘᠊᠊ࠢ࠘𐡏
